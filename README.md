@@ -2,6 +2,8 @@ Atores:
 
 Johnny Depp
 
-Leonardo de Caprio
+Brad lee cooper
 
 Brad Pitt
+
+Ed helms
